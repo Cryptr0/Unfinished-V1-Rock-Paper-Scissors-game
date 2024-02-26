@@ -1,0 +1,1 @@
+My first ever attempt to create a little game, it is unfinished due to the fact that I learned new skills to make a better version. But I still felt I should still upload for the sake of seeing my self grow!
